@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @xd-lawson
+- 👀 I’m interested in coding , gaming & etc
+- 🌱 I’m currently learning python
+- 📫 How to reach me DM me in discord "amotalx"
